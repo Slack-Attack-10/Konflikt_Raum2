@@ -1,2 +1,2 @@
 
-Wir konflikten mal wieder
+Konflikte, Konflikte, Konflikte
